@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ellemanch
+- 👀 I’m interested in sports, reading, cooking, travel
+- 🌱 I’m currently learning all I can get my hands on
+- 📫 reach me on: elenceee@gmail.com
